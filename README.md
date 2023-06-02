@@ -27,7 +27,12 @@ Mi posso definire dolce, creativa e anche un po’ pazzerella con me i sorrisi n
 - Bootstrap
 
 ### Connettiti con 𝓶e:
+Email: marghefole02@gmail.com
 
-Linkedin: [https://codepen.io/MargheritaFolegatti](https://codepen.io/MargheritaFolegatti)
+Instagram: [https://instagram.com/margheritafolegatti?igshid=NTc4MTIwNjQ2YQ==](https://instagram.com/margheritafolegatti?igshid=NTc4MTIwNjQ2YQ==)
 
-Codepen: [https://www.linkedin.com/in/margherita-folegatti/](https://www.linkedin.com/in/margherita-folegatti/)
+Linkedin: [https://www.linkedin.com/in/margherita-folegatti/](https://www.linkedin.com/in/margherita-folegatti/)
+
+Codepen: [https://codepen.io/MargheritaFolegatti](https://codepen.io/MargheritaFolegatti)
+
+
